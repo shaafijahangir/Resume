@@ -46,7 +46,7 @@
 - Intermediate: Java, R, PHP, C, C++
 
 **Tools:**  
-- Versed in Git, Photoshop, Figma, Excel, WordPress, Slack, Microsoft Teams, Microsoft Office Suite, Google Suite, and more.
+- Versed in Git, Trello, Photoshop, Figma, WordPress, Canva, Slack, Microsoft Office Suite, MS Excel, Google Suite, etc.
 
 **Soft Skills:**  
 - Consistently clarifies concepts
