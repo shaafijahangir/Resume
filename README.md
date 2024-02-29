@@ -1,6 +1,6 @@
 # M Shaafi Jahangir
 
-🌎 Victoria, Canada | 📞 +1 236 882 5428 | 📧 mshaafijahangir@gmail.com | 🔗 [LinkedIn]([https://github.com/shaafijahangir](https://www.linkedin.com/in/m-shaafi-jahangir/))
+🌎 Victoria, Canada | 📞 +1 236 882 5428 | 📧 mshaafijahangir@gmail.com | 🔗 [LinkedIn](https://www.linkedin.com/in/m-shaafi-jahangir/)
 
 ## Education
 
